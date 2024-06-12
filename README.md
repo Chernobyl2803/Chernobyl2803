@@ -6,7 +6,7 @@ Meu nome é Máira Chernobyl
 - Meu sonho e ser policial civil(agente)
 - sou a esposa do Gil 👩‍❤️‍👨
 
-  ##voce pode entrar em contato comigo📧
+  ## voce pode entrar em contato comigo📧
 
   mairabiancaconceicaoferreira@gmail.com
 
